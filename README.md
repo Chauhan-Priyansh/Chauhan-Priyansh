@@ -22,8 +22,8 @@
 🔹 *Open-source contributions and cutting-edge innovations*  
 
 ## ⚡ **Fun Fact**  
-I love **coding late at night**, with **Spotify playlists on loop, coffee brewing, and the thrill of solving problems! ☕🎧**  
-I enjoy **exploring futuristic tech, strategic decision-making, and pushing creative boundaries.**  
+🔹I love **coding late at night**, with **Spotify playlists on loop, coffee brewing, and the thrill of solving problems! ☕🎧**  
+🔹I enjoy **exploring futuristic tech, strategic decision-making, and pushing creative boundaries.**  
 
 ## 📫 **Connect With Me**  
 📧 Email: priyansh132chauhan@gmail.com  
