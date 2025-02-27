@@ -21,6 +21,10 @@
 🔹 *Blockchain & Decentralized Systems*  
 🔹 *Open-source contributions and cutting-edge innovations*  
 
+## ⚡ **Fun Fact**  
+I love **coding late at night**, with **Spotify playlists on loop, coffee brewing, and the thrill of solving problems! ☕🎧**  
+I enjoy **exploring futuristic tech, strategic decision-making, and pushing creative boundaries.**  
+
 ## 📫 **Connect With Me**  
-📧 Email: your-email@example.com  
+📧 Email: priyansh132chauhan@gmail.com  
 🔗 *[LinkedIn](#) | [GitHub](#) | [Twitter](#)*  
