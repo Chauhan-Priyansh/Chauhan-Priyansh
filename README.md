@@ -26,5 +26,5 @@
 🔹I enjoy **exploring futuristic tech, strategic decision-making, and pushing creative boundaries.**  
 
 ## 📫 **Connect With Me**  
-📧 Email: priyansh132chauhan@gmail.com  
-🔗 *[LinkedIn](#) | [GitHub](#) | [Twitter](#)*  
+📧 Email: Priyansh.AI@outlook.com  
+🔗 **[LinkedIn](#) | [Twitter](#) |*📍* [GitHub](https://github.com/Chauhan-legacy) |*📍* [Discord](https://discord.gg/3W9nEtEs)  | *📍* [Hugging-Face](https://huggingface.co/Priyansh-Chauhan) | *📍*[Mastodon](https://mastodon.social/@Priyansh_Chauhan)|**
